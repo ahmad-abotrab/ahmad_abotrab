@@ -30,6 +30,4 @@ Holding a degree in Information Technology Engineering from Damascus University 
 
 <br clear="all" />
 
----
-
 ## 🤝 Let's Connect
